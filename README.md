@@ -1,1 +1,2 @@
-# We-will-not-change-the-Chinese-dream
+
+风雨兼程百年路，初心不改中国梦  第十二届广西高校计算机应用大赛二等奖
